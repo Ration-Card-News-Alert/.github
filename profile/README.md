@@ -1,10 +1,21 @@
 # Ration Card News: Complete e-KYC by February 15 or Lose Free Ration Benefits
 
+![PM Ration Card-Alert](https://github.com/user-attachments/assets/4cae0205-ff92-4d14-9cb4-981c94d2b515)
+
+
 ## Ration Card News
+
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
 
 Hello friends, welcome to our latest article. As you all know, the Uttar Pradesh government has issued a strict order making e-KYC mandatory for ration cardholders. All beneficiaries must complete their e-KYC by February 15, 2025. Failure to do so will result in the cancellation of their ration card, which means they will no longer be eligible for free ration under government schemes.
 
 According to the information received, if beneficiaries do not complete their e-KYC within the given timeframe, their ration cards will be canceled. Currently, in Gorakhpur district alone, approximately 6.62 lakh units have not completed their e-KYC, which is a significant number.
+
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
+### 👉 [Ration Card News Alert Apply Now](https://lakhimpurkheri.com/ration-card-news-alert/)
 
 ## Risk of Ration Reduction Due to Incomplete e-KYC
 
