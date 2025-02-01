@@ -1,6 +1,7 @@
 # Ration Card News: Complete e-KYC by February 15 or Lose Free Ration Benefits
 
-![PM Ration Card-Alert](https://github.com/user-attachments/assets/4cae0205-ff92-4d14-9cb4-981c94d2b515)
+[![PM Ration Card-Alert](https://github.com/user-attachments/assets/4cae0205-ff92-4d14-9cb4-981c94d2b515)](https://lakhimpurkheri.com/ration-card-news-alert/)
+[![Ration Card News](https://example.com/image.jpg)](https://lakhimpurkheri.com/ration-card-news-alert/)
 
 
 ## Ration Card News
